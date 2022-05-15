@@ -1,3 +1,8 @@
+- 📫 How to reach me **myusa#0704**
+
+<h3 align="left">Discord Server : https://discord.gg/gdC4QXfeCc</h3>
+
+
 # Valorant remove the ban without deleting the game and formatting your computer. 
 
 
