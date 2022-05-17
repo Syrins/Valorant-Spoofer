@@ -24,3 +24,4 @@ After restarting, change your monitor information using cru.
 
 After cleaning it first, click on spoof and your ban will be removed.
 
+.
